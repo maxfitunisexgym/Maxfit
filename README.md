@@ -1,2 +1,2 @@
-# Maxfit
+# MAXFIT UNISEX GYM 
 Official website of MAXFIT UNISEX GYM 
